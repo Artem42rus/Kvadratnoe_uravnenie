@@ -1,0 +1,1 @@
+# Kvadratnoe_uravnenie
